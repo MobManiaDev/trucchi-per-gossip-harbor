@@ -21,7 +21,15 @@
   <li>Espansioni mappa illimitate.</li>
 </ul>
 
-# 🔴🔴 **[👉 Clicca Qui per Scaricare i Trucchi per Gossip Harbor](https://rebrand.ly/MobManiaDev)** 🔴🔴
+<div align="center">
+
+<h1>
+<a href="https://shr.pn/mobmaniadev">
+🫵🫵 CLICCA QUI PER SCARICARE I TRUCCHI 🫵🫵
+</a>
+</h1>
+
+</div>
 
 <p>Le risorse vengono generate direttamente sui tuoi dispositivi, senza dover scaricare applicazioni esterne o fornire dati sensibili. Tutto il processo è gestito tramite una piattaforma sicura, testata e aggiornata regolarmente per garantire la massima affidabilità.</p>
 
@@ -96,4 +104,12 @@
 
 <p>Vuoi completare missioni più velocemente, ottenere potenziamenti esclusivi e accedere ai contenuti premium? Scarica ora i <strong>trucchi per Gossip Harbor</strong> e inizia la tua esperienza senza limiti.</p>
 
-# 🔴🔴 **[👉 Clicca Qui per Scaricare i Trucchi per Gossip Harbor](https://rebrand.ly/MobManiaDev)** 🔴🔴
+<div align="center">
+
+<h1>
+<a href="https://shr.pn/mobmaniadev">
+🫵🫵 CLICCA QUI PER SCARICARE I TRUCCHI 🫵🫵
+</a>
+</h1>
+
+</div>
